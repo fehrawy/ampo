@@ -1,2 +1,0 @@
-# ampo
-elzero wep school
